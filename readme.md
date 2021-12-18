@@ -1,0 +1,1 @@
+Use a Injector like synapse i am not responsible For what you do with this and if you get banned.
